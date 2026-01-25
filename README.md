@@ -1,0 +1,28 @@
+**Research Project 1 - REL 2515**
+<br><br>
+
+The Flooded Garden: Prehistoric Civilization in the Persian Gulf Oasis
+<br><br>
+
+
+**Annotated Bibliography**
+
+Howard-Carter, Theresa. “The Tangible Evidence for the Earliest Dilmun.” Journal of Cuneiform Studies 33, no. 3/4 (1981): 210–23. https://doi.org/10.2307/1359904.
+
+_A presentation of evidence regarding the possible real-world location of the mythical Sumerian land of Dilmun in the Persian Gulf prior to its submergence, with reference to the corresponding Biblical story of Eden._
+<br><br>
+
+Parker, A.G., and J.I. Rose. “Climate Change and Human Origins in Southern Arabia.” Proceedings of the Seminar for Arabian Studies 38 (2008): 25–42. http://www.jstor.org/stable/41223935.
+
+_An examination of genetic and environmental data indicating migration among the earliest human inhabitants of the Arabian peninsula due to extreme climatic events, including the submergence of the Persian Gulf Oasis._
+<br><br>
+
+Rose, Jeffrey I. “New Light on Human Prehistory in the Arabo-Persian Gulf Oasis.” Current Anthropology 51, no. 6 (2010): 849–83. https://doi.org/10.1086/657397.
+
+_A study on the relationship between proposed human habitation of the Persian Gulf Oasis and the subsequent emergence of civilization in Mesopotamia, with a consideration of the ecological niche served by this location._
+<br><br>
+
+
+**Introduction**
+
+The geographical location of the Garden of Eden, if indeed such a place existed, has been a topic of contention among theologians and scholars of religion for centuries. The various theories put forward by researchers have in the past relied extensively (and in many cases, exclusively) on Biblical sources, which has consequently limited their historical accuracy and failed to produce a definite solution to the problem. Later scholarship considered evidence from extra- and pre-Biblical religious texts with the intention of ascertaining whether a geographical location for the Biblical Eden may be determined with greater accuracy. Most recently, scholars have pursued a multidisciplinary approach that incorporates comparative mythology regarding the "flood myth" in early Mesopotamia, historical evidence of a location named "Eden" with reference to its geography, and climate data from the Arabian peninsula to arrive at groundbreaking conclusions regarding the existence and geographical location of the Biblical Eden. This paper will summarize the evidence to argue that such conclusions are accurate.
