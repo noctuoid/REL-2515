@@ -14,7 +14,7 @@ _The authors argue that environmentalist alarmism of the likes propounded by the
 
 Skrimshire, Stefan. 2019. “Activism for End Times: Millenarian Belief in an Age of Climate Emergency.” Political Theology 20 (6): 518–36. doi:10.1080/1462317X.2019.1637993. 
 
-_A comparison of millenarian beliefs in the Christian paradigm to beliefs in the end of the world espoused by climate activists, including the propensity of such fear-mongering rhetoric to incite destructive and violent responses by justifying any such means by the ostensible end of "saving the world" from theological or ecological doom._
+_A comparison of millenarian beliefs in the Christian paradigm to beliefs in the end of the world espoused by climate activists, including the propensity of such fear-mongering rhetoric to incite destructive and violent responses by justifying any such means for the ostensible end of "saving the world" from theological or ecological doom._
 <br><br>
 
 
