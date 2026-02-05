@@ -1,28 +1,24 @@
 **Research Project 1 - REL 2515**
 <br><br>
 
-The Flooded Garden: Prehistoric Civilization in the Persian Gulf Oasis
+Green Heaven: Towards an Eschatology of Millenarian Climatism
 <br><br>
 
 
 **Annotated Bibliography**
 
-Howard-Carter, Theresa. “The Tangible Evidence for the Earliest Dilmun.” Journal of Cuneiform Studies 33, no. 3/4 (1981): 210–23. https://doi.org/10.2307/1359904.
+Kvandal, Halvor, and Gabriel Levy. “Green Apocalypse: A Biocultural Perspective on End of the World Narratives in Environmental Movements.” Zygon: Journal of Religion and Science 60, no. 3 (November 6, 2025). https://doi.org/10.16995/zygon.18365. 
 
-_A presentation of evidence regarding the possible real-world location of the mythical Sumerian land of Dilmun in the Persian Gulf prior to its submergence, with reference to the corresponding Biblical story of Eden._
+_The authors argue that environmentalist alarmism of the likes propounded by the Marxist extremist group "Extinction Rebellion" are essentially fantastical simulations of the end of the world that provide an outlet for frustration and anxiety about real problems stemming from political oppression and social decline._
 <br><br>
 
-Parker, A.G., and J.I. Rose. “Climate Change and Human Origins in Southern Arabia.” Proceedings of the Seminar for Arabian Studies 38 (2008): 25–42. http://www.jstor.org/stable/41223935.
+Skrimshire, Stefan. 2019. “Activism for End Times: Millenarian Belief in an Age of Climate Emergency.” Political Theology 20 (6): 518–36. doi:10.1080/1462317X.2019.1637993. 
 
-_An examination of genetic and environmental data indicating migration among the earliest human inhabitants of the Arabian peninsula due to extreme climatic events, including the submergence of the Persian Gulf Oasis._
-<br><br>
-
-Rose, Jeffrey I. “New Light on Human Prehistory in the Arabo-Persian Gulf Oasis.” Current Anthropology 51, no. 6 (2010): 849–83. https://doi.org/10.1086/657397.
-
-_A study on the relationship between proposed human habitation of the Persian Gulf Oasis and the subsequent emergence of civilization in Mesopotamia, with a consideration of the ecological niche served by this location._
+_A comparison of millenarian beliefs in the Christian paradigm to beliefs in the end of the world espoused by climate activists, including the propensity of such fear-mongering rhetoric to incite destructive and violent responses by justifying any such means by the ostensible end of "saving the world" from theological or ecological doom._
 <br><br>
 
 
 **Introduction**
 
-The geographical location of the Garden of Eden, if indeed such a place existed, has been a topic of contention among theologians and scholars of religion for centuries. The various theories put forward by researchers have in the past relied extensively (and in many cases, exclusively) on Biblical sources, which has consequently limited their historical accuracy and failed to produce a definite solution to the problem. Later scholarship considered evidence from extra- and pre-Biblical religious texts with the intention of ascertaining whether a geographical location for the Biblical Eden may be determined with greater accuracy. Most recently, scholars have pursued a multidisciplinary approach that incorporates comparative mythology regarding the "flood myth" in early Mesopotamia, historical evidence of a location named "Eden" with reference to its geography, and climate data from the Arabian peninsula to arrive at groundbreaking conclusions regarding the existence and geographical location of the Biblical Eden. This paper will summarize the evidence to argue that such conclusions are accurate.
+The analogy between fundamentalist Judeo-Christian millenarianism, wherein religious texts are interpreted as infallible proclamations of the end of the world replete with specific dates and locations, and the equally zealous proclamations by climate alarmists of a world-ending catastrophy precipitated by the errant judgment of mankind, for which he is punished by nature as if by God, has become so obvious as to constitute something of a running joke for many people. However, the irrational and unquestioning acceptance of such dogma by its most zealous adherents often belies the seriousness of the issue on which it is based - to our knowledge, the world is in fact going to end, one way or another, and we would be just as irrational as the most ridiculous climate agitators to be entirely unconcerned about it. While most "solutions" offered by the cynical puppeteers of the climate industry are at best ineffective and at worst contrary to their stated aims, real solutions do exist and have garnered the attention of a rapidly increasing contingent of the elite whose willingness and ability to engage with the issue in practical terms is fostering the emergence of a realistic alternative to the endless cycles of unrestrained growth and managed decline that have informed the trajectory of our civilization for far too long. The focus of this paper will be on the inadequacy of this latter model as exemplified by the likeness of contemporary environmentalist rhetoric to that of fundamentalist religion, with some attention paid to novel alternatives to the problem of human survival and the depletion or destruction of natural resources.
+
